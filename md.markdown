@@ -1,0 +1,8 @@
+Access key
+
+AKIASRN2QLX6Y3JVASIE
+
+
+secrett keyy
+
+hPDI8DDMSDvR3PSm7fEUF68WQ8gOm2LU+srzpT9Y
